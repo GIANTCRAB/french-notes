@@ -1,0 +1,1 @@
+if a nouns ends with E, it should usually be feminine

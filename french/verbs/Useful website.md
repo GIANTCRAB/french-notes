@@ -1,0 +1,1 @@
+https://conjugator.reverso.net
