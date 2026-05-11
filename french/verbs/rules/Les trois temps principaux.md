@@ -1,0 +1,1 @@
+In French, the three main tenses used for communication are [[Présent de l'Indicatif]] (to talk about current actions or states), the [[Passé composé de l'Indicatif]] (to talk about completed actions in the past), and the future (to talk about actions or events in the future).
