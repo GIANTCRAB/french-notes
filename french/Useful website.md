@@ -1,0 +1,3 @@
+- https://conjugator.reverso.net
+- [https://apprendre.tv5monde.com/fr](https://www.italki.com/open?target=https%3A%2F%2Fapprendre.tv5monde.com%2Ffr)
+- https://www.podcastfrancaisfacile.com/plan-de-cours-fle-debutant
